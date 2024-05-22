@@ -158,7 +158,7 @@ Geary and Park Presidio to Lands End Lookout Visitor Center
 * Walk to the left of restroom and playground to first junction.
 * Veer L off asphalt path (at basketball court on your R) to continue along dirt Mountain Lake Trail. Keep L at next junction and continue along asphalt path.
 * Walk under State Highway 1, ascend to next junction, and turn L.
-* About 50 yards past junction, ascend staircase on right all the way to top. Continue to follow Mountain Lake Trail. (**Note**: At one point along Mountain Lake Trail, you will come to a very short boardwalk on your right that will lead to abandoned US Marine Hospital Cemetery [1881-1912]).
+* About 50 yards past junction, ascend staircase on right all the way to top. Continue to follow Mountain Lake Trail. 
 * Turn L at next junction to follow path adjacent to road in front of building.
 * Walk about 30 yards to Wedemeyer Street (unmarked) and turn L before crossing the street, and descend dirt path adjacent to Wedemeyer.
 * At first crosswalk, walk to other side of Wedemeyer, and take immediate, sharp R onto Lobos Creek Valley Trail.
